@@ -1,2 +1,2 @@
 # Projet
-Sarah Boukhari, Nana Aicha, Miller Abessolo, Adrien
+Sarah Boukhari, Nana Aicha, SE Miller Abessolo, Adrien
